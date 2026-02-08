@@ -7,8 +7,7 @@
 
  　   　  　 　   　  　 　   　  　 　   　 　   　       ᶠᶸᶜᵏᵧₒᵤ!
 
-![Image](https://github.com/user-attachments/assets/ff766033-ab0b-4f71-8086-fc3608670d84) 
-
+ 　 　　![Image](https://github.com/user-attachments/assets/a39469ef-1d44-44aa-88ea-6a2e3f59ca0f)
 
                             
- 　   　   　   　  　　 BILLY JUST PLAY THE DAMN GAME!!/j love u boiboi ur my homeboy
+ 　   　   　   　  BILLY JUST PLAY THE DAMN GAME!!/j love u boiboi ur my homeboy
