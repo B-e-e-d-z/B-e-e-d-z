@@ -1,5 +1,4 @@
-![Image](https://github.com/user-attachments/assets/8153ebb7-eaaf-4d80-b3d1-ee786c20959e)
-
+![Image](https://github.com/user-attachments/assets/a6ff562b-cb2f-4596-9969-d0df786607c3)
 
  　   　  　 𝄞 "Do you like how I walk? Do you like how I talk?" ⋆⭒˚.⋆
 
