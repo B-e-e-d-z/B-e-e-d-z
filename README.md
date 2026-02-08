@@ -5,10 +5,10 @@
            
  　   　  　 　   　  　₊˚.   "Do you like how my face disintergrates into chalk?" ||
 
-　 　 　　 　　 　 　 　 　 　　 ᶠᶸᶜᵏᵧₒᵤ!
+ 　   　  　 　   　  　 　   　  　 　   　 　   　       ᶠᶸᶜᵏᵧₒᵤ!
 
-
+![Image](https://github.com/user-attachments/assets/ff766033-ab0b-4f71-8086-fc3608670d84) 
 
 
                             
- 　   　   　   　  　　 　  　BILLY JUST PLAY THE DAMN GAME!!/j love u boiboi
+ 　   　   　   　  　　 BILLY JUST PLAY THE DAMN GAME!!/j love u boiboi ur my homeboy
